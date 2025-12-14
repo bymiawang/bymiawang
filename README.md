@@ -1,5 +1,4 @@
-### Hi, I'm Mia!
-***
+### Hi, I'm Mia :)
 
 website https://miawang.space/
 
